@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket secure Trading Bot: take-profit-orders & volatility-detection, the #1 trading-bot. Includes take-profit-orders and
 
 
 
